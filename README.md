@@ -53,6 +53,12 @@ _̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳
 
 #️⃣  🇮 🇯🇺🇸🇹 🇼🇦🇳🇹 🇹🇴 🇲🇪🇪🇹 🇳🇪🇼 🇵🇪🇴🇵🇱🇪! ^ ^🍀.
 
+Mah friendsszz!!!!:
+[Some of them don't have GitHub aaaaa.. I will write and collect them like Pokémon cards lol]
+
+
+#️⃣ @TheForgetMeNot
+
 
 
 <img width="136" height="100" alt="image" src="https://github.com/user-attachments/assets/55c1b5be-5ed2-457f-ae7d-acd766cf5d8c" />  >///< 𖹭 [​🇮​ ​🇱​​🇴​​🇻​​🇪​ ​🇹​​🇭​​🇪​​🇲​ ​🇸​​🇲​, ​🇴​​🇳​​🇱​​🇾​ ​🇴​​🇳​​🇪​ ​🇴​​🇫​ ​🇲​​🇾​ ​🇫​​🇦​​🇻​ ​🇸​​🇭​​🇮​​🇵​ ​🇧​​🇹​​🇼​ LOL]
