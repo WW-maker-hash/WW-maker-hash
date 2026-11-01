@@ -59,7 +59,7 @@ _̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳_̳
 =🇸🇴🇲🇪 🇴🇫 🇹🇭🇪🇲 🇩🇴🇳'🇹 🇭🇦🇻🇪 🇬🇮🇹🇭🇺🇧 🇦🇦🇦🇦🇦.. 🇮 🇼🇮🇱🇱 🇼🇷🇮🇹🇪 🇦🇳🇩 🇨🇴🇱🇱🇪🇨🇹 🇹🇭🇪🇲 🇱🇮🇰🇪 🇵🇴🇰é🇲🇴🇳 🇨🇦🇷🇩🇸 🇱🇴🇱=
 
 
-┏ (゜ω゜)Mah Bunnyyy🐰=👉 [♡𓏼 ოísօ 🌙 ](https://github.com/IntergalacticAdventurer)
+┏ (゜ω゜)Mah strong, tuff, independent Bunnyyy🐰=👉 [♡𓏼 ოísօ 🌙 ](https://github.com/IntergalacticAdventurer)
 
 
 
